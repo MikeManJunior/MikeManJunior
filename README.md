@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MikeManJunior
+- 👀 I’m interested in ... Coding GAMES!
+- 🌱 I’m currently learning BAsic - ADVANCED Coding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me noshjublefortnite@gmail.com
+- 😄 Pronouns: He 
+- ⚡ Fun fact: Young developer and needs inspiration
